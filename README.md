@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Meepx13
+- 👀 I’m interested in helping my advisory brethren with a weather station
+- 🌱 I’m currently learning how to computer
+- 💞️ I’m looking to collaborate on weather station
+- 📫 How to reach me: Discord
+- 😄 Pronouns: dude
+- ⚡ Fun fact: I'm an idiot
